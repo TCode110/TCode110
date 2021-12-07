@@ -14,7 +14,7 @@
 
 - 👨‍💻 All of my blogs are available at **[My Blogs](https://2020udemycoupons.blogspot.com)**
 
-- 📫 How to reach me **<a href = "https://twitter.com/heart_blueheart"><img src="https://img.icons8.com/fluent/48/000000/twitter.png"/></a>**
+- 📫 How to reach me **<a href = "https://twitter.com/"><img src="https://img.icons8.com/fluent/48/000000/twitter.png"/></a>**
 
 - ⚡ Fun fact **I play games and go to the GYM very often.**
 
